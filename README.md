@@ -101,6 +101,8 @@ Every expert was once a beginner. Every master was once a student. The key is to
 ## 📬 Connect
 
 Feel free to reach out, ask questions, or share your own ML journey. Let's learn and grow together!
+Email Me at : sukhjeetkhalsa111@gmail.com
+Linkedin: https://www.linkedin.com/in/sukhjeet-khalsa
 
 ---
 
